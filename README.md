@@ -1,1 +1,1 @@
-# Obsidian_Vault-_OS
+# Obsidian Vault môn OS của nhóm 7
